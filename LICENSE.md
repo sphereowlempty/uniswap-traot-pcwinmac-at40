@@ -1,4 +1,4 @@
-# 
+# Profissional uniswap trading bot fluxo de trabalho for Mac OS | Ultimato uniswap trading bot fluxo de trabalho for PC Windows. Featuring análise de momento and pools de liquidez DEX — optimized for maximum performance.
 
 
 
